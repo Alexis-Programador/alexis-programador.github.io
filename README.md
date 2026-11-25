@@ -1,1 +1,1 @@
-# txt
+google.com, pub-1010486153321400, DIRECT, f08c47fec0942fa0
